@@ -7,7 +7,7 @@ Ingeniero / Profesional Técnico en **Desarrollo de Sistemas de Información** g
 - ♿ **Registro CONADIS:** N° 17593-2017
 - 🌐 **Idiomas:** Español (Nativo) | Inglés (Intermedio B2 - Euroidiomas)
 - 📍 **Ubicación:** Lima, Perú
-- 📫 **Contacto:** [Tu Correo Personal] | [Tu Perfil de LinkedIn]
+- 📫 **Contacto:** aratavalga@gmail.com
 
 ---
 
