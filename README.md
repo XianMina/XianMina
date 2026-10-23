@@ -1,4 +1,4 @@
-# ¡Hola! Soy Sohail Iran Arata Valga 👋
+# ¡Hola! Soy Sohail 👋
 
 ### 💻 Software Developer | Full-Stack & Backend (.NET C#, Java Spring Boot, Python, React, Astro)
 
