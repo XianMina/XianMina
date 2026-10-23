@@ -8,7 +8,7 @@ Ingeniero / Profesional Técnico en **Desarrollo de Sistemas de Información** g
 - 🌐 **Idiomas:** Español (Nativo) | Inglés (Intermedio B2 - Euroidiomas)
 - 📍 **Ubicación:** Lima, Perú
 - 📫 **Contacto:** aratavalga@gmail.com
-- 📱**Teléfono** 51+ 959 550 450
+- 📱**Teléfono:** 51+ 959 550 450
 
 ---
 
